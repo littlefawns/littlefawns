@@ -1,4 +1,5 @@
-<img width="498" height="291" alt="998" src="https://github.com/user-attachments/assets/f8639652-d596-493f-9f17-cc4a79f6fd4d" />
+<img width="498" height="281" alt="1078" src="https://github.com/user-attachments/assets/0f5e526f-d465-4cc2-a4a2-62e09759d820" />
+
 
 
 ㅤㅤㅤㅤcudcomfㅤ♡ㅤint enc    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤpocㅤ♡ㅤnagito and chiaki kin
